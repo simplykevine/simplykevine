@@ -12,3 +12,4 @@ currently studying software Enginnering basically doing hard things all the time
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I can rap 😂 and also I never give up
 - I believe in God, Jesus Christ and  Holy spirit 
+- 🎈 thanks for passing by I appreciate you ♥ ♥ 
