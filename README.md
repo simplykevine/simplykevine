@@ -11,7 +11,7 @@ currently studying software Enginnering basically doing hard things all the time
 - 🌱 I’m currently learning Python and SQL
 - 👯 I’m looking to collaborate to any project with a committed person 
 - 🤔 I’m looking for help with java script 
-- 💬 Ask me about music and bible
+- 💬 Ask me about music, confidence and bible
 - 📫 How to reach me: DM via my gmail: umutonikevine2004@gmail.com 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I can rap 😂 and also I never give up
